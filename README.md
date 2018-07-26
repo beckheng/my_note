@@ -1,1 +1,1 @@
-# my_note
+# Please view the wiki
